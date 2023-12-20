@@ -1,0 +1,1 @@
+# daichi.co.com
